@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **eng.andrefaccio@gmail.com**
 
-- 📄 Know about my experiences [Undergraduate in Computer Engineering at UFMS University](Undergraduate in Computer Engineering at UFMS University)
+- 📄 Know about my experiences [In the process of completing my degree in Computer Engineering Computer Engineering at UFMS University](https://www.ufms.br/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
